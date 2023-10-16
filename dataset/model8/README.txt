@@ -1,0 +1,1 @@
+corrected model 7 for both hands
